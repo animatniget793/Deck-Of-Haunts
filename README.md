@@ -223,4 +223,4 @@ Deck of Haunts is available as a full free version with all features and updates
 Take your place as the villain and defend your haunted mansion! Download **Deck of Haunts** now and start your strategic adventure!
 
 ---
-**Last updated:** 2026-10-11 00:02:17 UTC
+**Last updated:** 2026-10-11 06:41:58 UTC
